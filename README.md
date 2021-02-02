@@ -1,1 +1,0 @@
-# brainx-ykmind.github.io
